@@ -1,6 +1,7 @@
 _ Meu anime favorito é Attack on Titan 🗝️​
 
 ​_ Meu arcano pessoal é o 7 (O Carro) ​🎰
+
 ​
 _ Coleciono cartas de pokemon 👾
 
